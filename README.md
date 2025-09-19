@@ -12,5 +12,5 @@
 
 作者对携带正版数字签名的电子书内容负责，因阅读盗版电子书所造成的一切损失，后果自负。
 
-附：比特期权永久Web3.0官网：<a href="primal.net/p/nprofile1qqsqawfnz459n0uu3vd8g5xds9zz29k7ctr9e9sqd33p0mdz720jcxsvdpgca">qiquan.btc</a>
+比特期权永久Web3.0官网：<a href="primal.net/p/nprofile1qqsqawfnz459n0uu3vd8g5xds9zz29k7ctr9e9sqd33p0mdz720jcxsvdpgca">qiquan.btc</a>
 
